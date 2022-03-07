@@ -31,7 +31,27 @@ This is my learning path from my Semester 2 (5th December, 2019) to Semester 5(1
 
 # What to mention in the resume, acad proejcts :
 
+https://www.youtube.com/watch?v=C7pNLIq3kOI
+https://youtu.be/UeMmCex9uTU
+https://youtu.be/bQ_dxs2b0f4
+https://youtu.be/KZehm-meGMg
+https://www.youtube.com/watch?v=Tt08KmFfIYQ
 
+https://www.youtube.com/watch?v=YeEO0DtENUo&t=751s
+
+https://www.youtube.com/watch?v=-5lNHML16JU
+https://www.youtube.com/watch?v=EvId_K83-5M
+
+https://youtu.be/RTadRis8jCU  
+https://www.youtube.com/watch?v=pbczsLkv7Cc
+https://www.youtube.com/watch?v=S1GwDXFt0oU
+https://www.youtube.com/watch?v=voRfAC_WHdo
+Tips to make resume
+https://youtu.be/YIdxMmcT2EU
+https://youtu.be/kxPsLuD5dd4
+
+https://youtu.be/vUsQP9uyKRk
+https://youtu.be/8HVwKVxdPxo
 
 
 1.
